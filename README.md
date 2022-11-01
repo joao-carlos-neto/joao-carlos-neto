@@ -1,3 +1,3 @@
 - João Carlos Delgado Neto
-- Atualmente Estudo : Java  
+- Estudante Fullstack  
 -  Busco Oportunidades de Emprego para a melhoria  das minhas skills.
