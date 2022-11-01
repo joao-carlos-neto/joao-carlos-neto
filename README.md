@@ -1,3 +1,3 @@
 - João Carlos Delgado Neto
-- Atualmente Estudo :Java 
+- Atualmente Estudo : Java  
 -  Busco Oportunidades de Emprego para a melhoria  das minhas skills.
